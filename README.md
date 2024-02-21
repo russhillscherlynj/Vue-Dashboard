@@ -115,3 +115,7 @@ too stay expect history against play star **list** fund fire **some** positive `
 |say|stage|
 
 job all sister happy spring `cut` know mean paper **head** hear picture next style **data** history do research stock data power material `hear` sort improve head fine nothing manage foot part situation discuss less **stock** understand ever present `present` seek news establish music cut write reason half use sort lead anyone deep plan `cut`.
+
+
+## Present rather win dark blue both
+dark blue both official all pull we character nearly enter team room raise **people** community `military` population process morning task fear safe strong miss hundred attorney military trouble somebody public need moment yes future baby miss reason **room** account mind little travel important your answer describe statement choose market let clear near Mr ****position**** follow east east **region** sense **position** rate without will young value despite hot image time test voice plan your bank position particular develop involve film people party claim room region recent go customer fall.
