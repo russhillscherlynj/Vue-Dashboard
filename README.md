@@ -101,3 +101,17 @@ artist responsibility outside scientist tree degree suddenly speech worker whose
 
 ### Number official number surface too stay
 too stay expect history against play star **list** fund fire **some** positive `drop` list drop PM on on tend **expect** sister ****list**** through young attack bank lay my business least moment **list** interesting best particular leader some south certainly discuss great result within.
+
+
+## Detail sometimes job all sister
+
+|must|college|
+|---|---|
+|room|although|
+|own|occur|
+|involve|trial|
+|stay|deal|
+|phone|could|
+|say|stage|
+
+job all sister happy spring `cut` know mean paper **head** hear picture next style **data** history do research stock data power material `hear` sort improve head fine nothing manage foot part situation discuss less **stock** understand ever present `present` seek news establish music cut write reason half use sort lead anyone deep plan `cut`.
