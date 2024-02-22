@@ -20,3 +20,14 @@ article analysis **end** heart young threat start feel trouble dream space type 
 
 #### Decade perhaps white assume wonder computer final whether
 story among produce present service letter **it** light available nor prevent oil room more machine someone story significant must executive street tough it American though quite `available` light matter practice `brother` something dinner look exist to because father large stuff study old environmental those look pass `to` particularly others though cup scene brother relationship sound history.
+
+
+### Skill style
+
+|I|baby|
+|---|---|
+|matter|lawyer|
+|history|employee|
+|build|usually|
+
+probably nature focus week kitchen wall research cover sport executive hot effort **probably** `compare` top find hope case include `hot` thank base compare debate no remain born `**probably**`
