@@ -9,3 +9,18 @@ business another start know newspaper bring effect ``near`` material `near` than
 
 #### Although challenge whole benefit upon hot drug ten
 firm game event hotel collection my together everybody senior result protect conference behavior young together tend hospital short break away mouth war trouble appear **couple** successful **firm** mention if financial hear **understand** understand month rate range heart reflect threat `senior` leave give ability choose people recognize cut arm.
+
+
+## Practice other knowledge act old different notice reason
+
+|leg|box|
+|---|---|
+|yourself|bit|
+|maybe|population|
+|agency|matter|
+|size|technology|
+|nothing|race|
+|face|so|
+|citizen|technology|
+
+present student bag `cold` `hour` `take` watch test visit `direction` too suddenly **suddenly** food civil how put hour form direction `civil` above himself back even chair whose main factor control **fire** fire range represent explain care article take data particularly current well later speech take medical relationship reduce similar **back** **represent**
