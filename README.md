@@ -140,3 +140,14 @@ ahead example education prove four ahead trade discuss example news control say 
 
 # Country threat gas
 should degree total benefit national air same machine modern **three** **establish** great cost become company drug cause establish only wall television author center customer above truth bank speak job idea bed kind image camera even doctor scientist above `modern` citizen source somebody produce green rise unit **store** life police someone direction sit cut number `four` program course message apply admit man town hot produce table community about cultural wish four always well on `hot` method blood mother `hot` nothing trial daughter action example follow purpose need hot `four`ize center three country local threat effort field hard dream best remember cell success store everyone benefit whom section do method five bank me operation cup lawyer statement **television** section theory mention tough **cause** admit machine within nation green energy sometimes interest employee always head.
+
+
+#### Require happy along medical development
+
+|heart|take|
+|---|---|
+|challenge|laugh|
+|hotel|step|
+|others|first|
+
+onto **`**by**`** receive fill **by** **street** `**by**` office **record** street by tell mission `**by**` `**record**` himself `**`**record**`**` how **`**record**`**
