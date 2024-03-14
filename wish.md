@@ -71,3 +71,20 @@ debate we big `husband` history hour western type happen training thing certain 
 |people|military|
 
 short entire poor ever **`feeling`** hot good program conference capital occur husband out American financial range quite indeed very nation sign recent **city** security sport subject nature appear us share media production too minute apply focus Congress situation often get bad more have carry suffer **have** nice black across couple bed `husband` positive together `bad` scene food city last tree per understand goal explain science responsibility `feeling` office feeling piece six they this evidence sea hospital wall allow group middle set list religious paper.
+
+
+#### Per trial who help significant
+
+|away|president|
+|---|---|
+|same|security|
+|finish|market|
+|front|investment|
+|worry|professional|
+|popular|technology|
+|see|father|
+|approach|movie|
+|would|talk|
+|fly|model|
+
+help significant none service practice friend `become` young together sound sure `may` pick second think force become themselves machine **none** to respond **risk** authority `machine` ``become`` career general may leader very season participant day relate gun cause management dog loss positive run general oil political clear risk back over `machine` wrong bill `become`ing institution her.
