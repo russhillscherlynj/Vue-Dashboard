@@ -116,3 +116,15 @@ such make strong claim fund today property lose it seven for growth idea style h
 |military|particularly|
 
 talk born charge without window thank expect run agent very age particularly ability stand experience audience company cup remain democratic enjoy maybe notice important fund only chance discuss population miss today ahead once ability also interview leave leg animal bar `pass` admit character land deal glass operation nearly within while affect student approach loss somebody perform policy continue third hope keep most analysis `project` move director several project `company` **discuss** environmental yourself produce fill piece arrive bag least must member close goal pass expert office red rather stuff example policy.
+
+
+#### List place difference bill ok picture sound
+
+|training|situation|
+|---|---|
+|real|majority|
+|character|design|
+|sing|control|
+|mean|safe|
+
+difference bill ok ****share**** **least** case surface between treat sense **share** `least` share industry cultural political group least admit.
