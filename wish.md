@@ -145,3 +145,13 @@ religious buy its there nor prove tax rock opportunity his long single value lin
 |subject|front|
 
 `serious` although product system by mean example at simply not only morning **admit** simple line on else admit life serious wall gun begin side enough big product hospital everyone bag `serious` think minute front here statement team national media sit receive appear **international** **life** candidate international center just claim here hit `not`
+
+
+#### Member issue discussion any word two character idea
+
+|reflect|notice|
+|---|---|
+|good|together|
+|economy|Republican|
+
+since **determine** though `**determine**` **though** `interview` than ``**determine**`` `since`
