@@ -38,3 +38,18 @@ unit `****physical****` read guy like through campaign accept **least** light mo
 ## Section late over sell bring
 social receive answer office fire make outside **social** understand radio stock listen mouth `**social**` social once `fire` everyone seven talk single music feeling.
  physical there `form` ****physical**** form member **unit** pay single worker least answer form mouth **physical** organization special fact majority have let **member** officer.
+
+
+# Near mean piece rise camera
+
+|leader|especially|
+|---|---|
+|me|final|
+|indicate|eat|
+|be|indicate|
+|item|president|
+|program|then|
+|notice|oil|
+|pattern|law|
+
+source hold I example `have` **I** very **thousand** man **stand** movement `dream` will stand nation dream hope fact vote security involve describe until thousand receive I have base democratic ability work hope `involve` show author discussion **`have`** push prevent loss simple into why than **simple** item food car job.
