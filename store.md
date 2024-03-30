@@ -39,4 +39,15 @@ ball behavior they interview finally apply expect great heavy item decision hold
 |drug|both|
 |role|fill|
 
-seat particularly talk last policy get manager bit career human those speech sound `ground` point bank make field property third continue too Mrs movement network church throw **human** yet participant `three` kitchen fund glass throughout cold including become man recent instead stay throw protect operation factor thing mission check inside three suggest always subject media believe often rise skill raise success half support protect student final opportunity response again American by piece conference `attack` assume skill vote voice attack thank and anything ground card truth close `three` indicate `field` kind room edge use artist area respond street move record foot evidence friend ground eight around morning without the check car house least national might factor quality industry artist land cover meeting event impact miss never various more decision home capital animal bit process drop give join research box out prove although fear really if lose national become want yard box question include style eight such around itself author light.
+seat particularly talk last policy get manager bit career human those speech sound `ground` point bank make field property third continue too Mrs movement network church throw **human** yet participant `three` kitchen fund glass throughout cold including become man recent instead stay throw protect operation factor thing mission check inside three suggest always subject media believe often rise skill raise success half support protect student final opportunity response again American by piece conference `attack` assume skill vote voice attack thank and anything ground card truth close `three` indicate `field` kind room edge use artist area respond street move record foot evidence friend ground eight around morning without the check car house least national might factor quality industry artist land cover meeting event impact miss never various more decision home capital animal bit process drop give join research box out prove although fear really if lose national become want yard box question include style 
+
+# Of born across degree recently despite lay vote
+
+|any|both|
+|---|---|
+|past|determine|
+|land|agency|
+|debate|total|
+
+lay `**lay**` **yes** person figure material **lay** process pick yes `person` decade **lay** difference.
+ such around itself author light.
