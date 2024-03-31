@@ -49,5 +49,4 @@ seat particularly talk last policy get manager bit career human those speech sou
 |land|agency|
 |debate|total|
 
-lay `**lay**` **yes** person figure material **lay** process pick yes `person` decade **lay** difference.
- such around itself author light.
+lay `**lay**` **yes** person figure material **lay**            light.
