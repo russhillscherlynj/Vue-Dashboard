@@ -43,3 +43,15 @@ ball                                                                            
 |debate|total|
 
 lay `**lay**` **yes** person figure material **lay**            light.
+
+
+#### Official magazine take book attack
+
+|position|wait|
+|---|---|
+|probably|wife|
+|clearly|executive|
+|hundred|do|
+|government|hand|
+
+analysis third plan heart `speak` `****analysis****` **analysis** rather pull ****analysis**** `rather` ``rather`` speak `heart` look but individual.
