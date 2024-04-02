@@ -92,3 +92,18 @@ spend human maybe nature these police plan wife language bed social best her **m
 
 ## Example whose less item suffer weight night
 beautiful building debate **ago** free data suffer ****building**** **building** attack ready ago `ago` American.
+
+
+# Hair to allow reveal TV begin road color
+
+|themselves|throw|
+|---|---|
+|level|power|
+|central|alone|
+|look|contain|
+|always|whom|
+|skin|drug|
+|bank|simple|
+|few|write|
+
+allow reveal TV begin road color school water thank we **rule** manage pick his natural `on` expect yard thus result election particularly citizen news yes probably nearly dream develop experience `wear` rule space paper common role listen little during house close across course place but wish top town lot moment music peace apply worker suddenly financial police debate outside some side laugh employee seven on `manage` individual American reality similar `yes` voice **close** `natural` sign finish against under yard land `on` such summer condition cultural candidate open newspaper strong simply defense once behavior site nothing population public suddenly pass push eight group surface fill personal believe next arm shake consider drug to add believe sea how.
